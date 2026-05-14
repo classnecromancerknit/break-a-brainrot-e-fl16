@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with break a brainrot egg vip Scripts, the #1 Script. Includes esp and anti-ban for unbeatable
 
 
 
